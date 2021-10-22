@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ZakriaHanif
 - 👀 I’m interested in Cryptocurrency Trading.
 - 🌱 I’m currently learning so if you can share your knowledge with me you are welcome, I will share mine with you.
-- 📫 You can reach me at Twitter: @ZakriaHanif5
+- 📫 Feel free to DM me.
 
 <!---
 ZakriaHanif/ZakriaHanif is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
